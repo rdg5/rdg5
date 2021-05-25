@@ -1,1 +1,1 @@
-![me irl](https://imgs.xkcd.com/comics/borrow_your_laptop_2x.png)
+![me irl](https://pbs.twimg.com/media/EotvzylXYAMF3vJ?format=jpg)
